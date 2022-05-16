@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://i.ibb.co/FgCff1t/20210406-154034.png" alt="Self" width="300" />
 
-# AWOKAWOK
+# AWOKAWkk.
 
 >
 >
